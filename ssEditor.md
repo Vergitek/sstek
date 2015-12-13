@@ -1,0 +1,1 @@
+ssEditor google doc https://docs.google.com/document/d/19v_nBgWo4Hy9S0TbBkJgcwCmYCQ3QKCayztceyS-ZxI/edit?usp=sharing
